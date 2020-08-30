@@ -1,0 +1,1 @@
+Thank you for following the instructions. You may close this window.
